@@ -1,0 +1,1 @@
+# emne1oppgave1
